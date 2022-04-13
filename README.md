@@ -43,6 +43,6 @@ Account Information -- If you wish to access or edit personal information and pa
 V. How to update this Privacy Policy
 We may adjust or change this Privacy Policy in due time. Any updates to this Privacy Policy will be posted on our website with the updated time. Unless otherwise mandatory by laws, regulations or regulatory provisions, the adjusted or changed content will become effective 7 days after the notification or publication. If you continue to use any of our services or visit our relevant websites after the privacy Policy is adjusted or changed, we believe that this means that you have fully read, understand and accept the revised Privacy Policy and are bound by it.
 How to contact us
-If you have any questions, comments or suggestions about this Privacy Policy, please contact us at katamarann4@yandex.ru:
+If you have any questions, comments or suggestions about this Privacy Policy, please contact us at jwgbosst5@21cn.com
 
 Normally, we will reply within 30 days.
